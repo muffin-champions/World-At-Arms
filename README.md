@@ -218,4 +218,4 @@ World at Arms is available as a full free version with all features and updates 
 Don't miss out on this epic strategy adventure! Download World at Arms now and lead your armies to victory!
 
 ---
-**Last updated:** 2026-10-19 00:47:50 UTC
+**Last updated:** 2026-10-19 05:42:53 UTC
